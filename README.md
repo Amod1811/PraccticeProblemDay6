@@ -1,0 +1,1 @@
+# PraccticeProblemDay6
